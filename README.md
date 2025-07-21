@@ -13,7 +13,7 @@ I luv my idiot box :tv::cupid: <sub>← this is about Cathal, but. Tenna's okay 
 > tenatively down for casual role play, just ask<br>
 
 *disclaimers...*
-> don't ask for my discord or for other ways to contact me<br>
+> I don't hand out my discord handle or other socials<br>
 > I block liberally, especially for edgy or overfamiliar humor<br>
 > I also block proshippers & similar brands of freaks
 
