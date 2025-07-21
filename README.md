@@ -17,4 +17,4 @@ I luv my idiot box :tv::cupid: <sub>← this is about Cathal, but. Tenna's okay 
 > I block liberally, especially for edgy or overfamiliar humor<br>
 > I also block proshippers & similar brands of freaks
 
-icon credit: [cutestknife](https://cutestknife.tumblr.com/post/777581703005880320/break-time) 
+icon credit: [clowndotgay](https://www.tumblr.com/clowndotgay/727180037677268992/random-discord-stuff-for-funsies?source=share)
