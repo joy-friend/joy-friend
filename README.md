@@ -1,16 +1,20 @@
-## Hi there 👋
+# info
+late 20s + aroace fagdyke + self shipper + hobbyist artist<br>
+I luv my idiot box :tv::cupid: <sub>← this is about Cathal, but. Tenna's okay too.</sub>
 
-<!--
-**joy-friend/joy-friend** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*main interests...*
+> Toontown: Corporate Clash<br>
+> Radio TV Solutions collective<br>
+> Deltarune (& Undertale, naturally)
 
-Here are some ideas to get you started:
+*chat & play...*
+> often AFK, feel free to whisper!<br>
+> generally ok with c+h, I'll move away if I need space :)<br>
+> tenatively down for casual role play, just ask<br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*disclaimers...*
+> don't ask for my discord or for other ways to contact me<br>
+> I block liberally, especially for edgy or overfamiliar humor<br>
+> I also block proshippers & similar brands of freaks
+
+icon credit: [cutestknife](https://cutestknife.tumblr.com/post/777581703005880320/break-time) 
