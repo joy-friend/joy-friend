@@ -15,6 +15,7 @@ I luv my idiot box :tv::cupid: <sub>← this is about Cathal, but. Tenna's okay 
 *disclaimers...*
 > I don't hand out my discord handle or other socials<br>
 > I block liberally, especially for edgy or overfamiliar humor<br>
+> I also hate proshippers & fans of Hazbin/Helluva, SP, Hetalia, etc<br>
 > weirdos & ragebaiters get covered til they get bored & leave ✌️
 
 icon credit: [clowndotgay](https://www.tumblr.com/clowndotgay/727180037677268992/random-discord-stuff-for-funsies?source=share)
