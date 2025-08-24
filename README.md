@@ -18,4 +18,4 @@ I luv my idiot box :tv::cupid: <sub>← this is about Cathal, but. Tenna's okay 
 > I also hate proshippers & fans of Hazbin/Helluva, SP, Hetalia, etc<br>
 > weirdos & ragebaiters get covered til they get bored & leave ✌️
 
-icon credit: [clowndotgay](https://www.tumblr.com/clowndotgay/727180037677268992/random-discord-stuff-for-funsies?source=share)
+icon credit: [cutestknife](cutestknife.tumblr.com/post/777581703005880320/break-time) @ tumblr
