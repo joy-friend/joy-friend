@@ -1,5 +1,5 @@
 # info
-late 20s + aroace fagdyke + self shipper + hobbyist artist<br>
+late 20s + [aroace fagdyke](https://pronouns.cc/@joy-friend) + self shipper + hobbyist artist<br>
 I luv my idiot box :tv::cupid: <sub>← this is about Cathal, but. Tenna's okay too.</sub>
 
 *main interests...*
